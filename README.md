@@ -1,0 +1,1 @@
+# Global_price_of_gold_XAU_USD
